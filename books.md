@@ -3,6 +3,7 @@
 * Telegraph Avenue: A Novel by Michael Chabon
 * American Lion: Andrew Jackson in the White house by Jon Meacham
 * The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver
+* The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart 
 
 ## 2012 read
 
