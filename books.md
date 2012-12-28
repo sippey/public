@@ -1,9 +1,12 @@
 ## currently reading
 
 * Telegraph Avenue: A Novel by Michael Chabon
+* American Lion: Andrew Jackson in the White house by Jon Meacham
+* The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver
 
 ## 2012 read
 
+* Savvy by Ingrid Law. *(I need to start including the books that I read out loud to the kids.)*
 * The Revolution Was Televised: The Cops, Crooks, Slingers and Slayers Who Changed TV Drama Forever by Alan Sepinwall
 * Reamde: A Novel by Neal Stephenson
 * May We Be Forgiven: A Novel by A. M. Homes
