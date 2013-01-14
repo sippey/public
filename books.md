@@ -1,12 +1,13 @@
 ## currently reading
 
-* Telegraph Avenue: A Novel by Michael Chabon
+* Gone Girl: A Novel by Gillian Flynn
 * American Lion: Andrew Jackson in the White house by Jon Meacham
 * The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver
 * The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart (with kids)
 
 ## 2013 read
 
+* Telegraph Avenue: A Novel by Michael Chabon
 * A Hologram for the King by Dave Eggers
 
 ## 2012 read
