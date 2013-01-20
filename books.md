@@ -1,8 +1,13 @@
 ## currently reading
 
-* American Lion: Andrew Jackson in the White house by Jon Meacham
-* The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver
-* The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart (with kids)
+* Zen and the Art of Motorcycle Maintenance by Robert Pirsig
+* American Lion: Andrew Jackson in the White house by Jon Meacham *(long read)*
+* The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver *(long read)*
+* The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart *(with kids)*
+
+## Queued up
+
+* Start with Why by Simon Sinek
 
 ## 2013 read
 
