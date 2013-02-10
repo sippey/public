@@ -11,6 +11,8 @@
 
 ## 2013 read
 
+* The Designful Company, by Marty Neumeier
+* The Paris Wife, A Novel by Paula McLain
 * Gone Girl: A Novel by Gillian Flynn
 * Telegraph Avenue: A Novel by Michael Chabon
 * A Hologram for the King by Dave Eggers
