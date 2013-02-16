@@ -11,6 +11,7 @@
 
 ## 2013 read
 
+* Music for Torching, by A.M. Homes
 * The Designful Company, by Marty Neumeier
 * The Paris Wife, A Novel by Paula McLain
 * Gone Girl: A Novel by Gillian Flynn
