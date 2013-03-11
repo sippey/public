@@ -11,6 +11,7 @@
 
 ## 2013 read
 
+* Reamde: A Novel by Neal Stephenson
 * Music for Torching, by A.M. Homes
 * The Designful Company, by Marty Neumeier
 * The Paris Wife, A Novel by Paula McLain
@@ -22,7 +23,6 @@
 
 * Savvy by Ingrid Law. *(I need to start including the books that I read out loud to the kids.)*
 * The Revolution Was Televised: The Cops, Crooks, Slingers and Slayers Who Changed TV Drama Forever by Alan Sepinwall
-* Reamde: A Novel by Neal Stephenson
 * May We Be Forgiven: A Novel by A. M. Homes
 * Cloud Atlas: A Novel by David Mitchell
 * Mr. Penumbra's 24-Hour Bookstore: A Novel by Robin Sloan
