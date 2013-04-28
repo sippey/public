@@ -1,23 +1,29 @@
 ## currently reading
 
-* Zen and the Art of Motorcycle Maintenance by Robert Pirsig
 * American Lion: Andrew Jackson in the White house by Jon Meacham *(long read)*
-* The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver *(long read)*
 * The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart *(with kids)*
+* Team of Rivals by Doris Kearns Goodwin
 
 ## Queued up
 
 * Start with Why by Simon Sinek
+* The Border Trilogy by Cormac McCarthy
+* Absurdistan by Gary Shteyngart
 
 ## 2013 read
 
-* Reamde: A Novel by Neal Stephenson
-* Music for Torching, by A.M. Homes
-* The Designful Company, by Marty Neumeier
-* The Paris Wife, A Novel by Paula McLain
-* Gone Girl: A Novel by Gillian Flynn
-* Telegraph Avenue: A Novel by Michael Chabon
-* A Hologram for the King by Dave Eggers
+1. Reamde: A Novel by Neal Stephenson
+2. Music for Torching, by A.M. Homes
+3. The Designful Company, by Marty Neumeier
+4. The Paris Wife, A Novel by Paula McLain
+5. Gone Girl: A Novel by Gillian Flynn
+6. Telegraph Avenue: A Novel by Michael Chabon
+7. A Hologram for the King by Dave Eggers
+8. The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver 
+9. Zen and the Art of Motorcycle Maintenance by Robert Pirsig
+10. Tenth of December by George Saunders
+11. All the Pretty Horses by Cormac McCarthy
+12. Lean In: Women, Work and the Will to Lead by Sheyl Sandberg
 
 ## 2012 read
 
