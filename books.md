@@ -22,8 +22,9 @@
 8. The Signal and the Noise: Why So Many Predictions Fail -- But Some Don't by Nate Silver 
 9. Zen and the Art of Motorcycle Maintenance by Robert Pirsig
 10. Tenth of December by George Saunders
-11. All the Pretty Horses by Cormac McCarthy
-12. Lean In: Women, Work and the Will to Lead by Sheyl Sandberg
+11. The Brief and Wondrous Life of Oscar Wao by Junot Diaz
+12. All the Pretty Horses by Cormac McCarthy
+13. Lean In: Women, Work and the Will to Lead by Sheyl Sandberg
 
 ## 2012 read
 
