@@ -1,14 +1,3 @@
-## currently reading
-
-* American Lion: Andrew Jackson in the White house by Jon Meacham *(long read)*
-* The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart *(with kids)*
-* Team of Rivals by Doris Kearns Goodwin
-
-## Queued up
-
-* Start with Why by Simon Sinek
-* The Border Trilogy by Cormac McCarthy
-* Absurdistan by Gary Shteyngart
 
 ## 2013 read
 
@@ -25,6 +14,11 @@
 11. The Brief and Wondrous Life of Oscar Wao by Junot Diaz
 12. All the Pretty Horses by Cormac McCarthy
 13. Lean In: Women, Work and the Will to Lead by Sheyl Sandberg
+14. The Extraordinary Education of Nicholas Benedict by Trenton Lee Stewart *(with kids)*
+15. These Days by Jack Cheng
+16. Wolf Hall: A Novel by Hilary Mantel
+17. Bring up the Bodies by Hilary Mantel
+18. Microinteractions by Dan Saffer
 
 ## 2012 read
 
